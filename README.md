@@ -4,4 +4,4 @@
 
 ## Please check out both of my accounts.
 
-## 20 followers and followed crossed on the main account! Hoping to get to 30 there and 20 here soon.
+## 30 followers and followed crossed on the main account! 40 there and 20 here next...
