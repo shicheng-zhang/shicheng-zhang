@@ -1,1 +1,3 @@
 ## Playing around more with AI over here and understanding more in the work showcased in my main account...
+
+## At any rate the projects here are more or less extended ecosystems of main projects in my main account or standalone things designed for a different purpose but which I deem the exact mechanics of not truly necessary to learn in a deep dive to enhance myself and my learning. Worth to know and work with however, that's why these projects even exist.
